@@ -1,4 +1,4 @@
-### Hi there 👋, Eliana Postolache
+### Hi there 👋,I'm Eliana Postolache
 #### 🔭 I’m currently working on this page.
 
 
